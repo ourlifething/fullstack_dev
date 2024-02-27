@@ -1,0 +1,1 @@
+https://gumiolog.blogspot.com/
